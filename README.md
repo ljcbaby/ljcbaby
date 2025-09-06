@@ -4,5 +4,5 @@
 A student in China now.
 
 - Read more about my [Blog](https://blog.ljcbaby.top/)
-- Talk with me by [Email](mailto:admin@ljcbaby.top) or [Telegram](https://t.me/Ljcbaby)
-- Follow me on [Twitter](https://twitter.com/Ljcbabylove) or [bilibili](https://space.bilibili.com/64220747)
+- Talk with me by [Email](mailto:i@ljcbaby.top)
+- Follow me on [bilibili](https://space.bilibili.com/64220747)
